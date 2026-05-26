@@ -1,0 +1,1 @@
+# Friday-age-of-omens-may-25
